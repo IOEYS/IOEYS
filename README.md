@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @IOEYS
-- 👀 I’m interested in currencies, frequencies, ai, nfts, blockchain technology, justice, freedom, preserving our human race, especially our children.
+- 👀 I’m interested in sovereignty, human rights advocates, communication education of all ages, finance,  frequencies, ai/agi/asi, nfts, blockchain technology, justice, freedom, preserving our human race, especially our children. 
 - 🌱 I’m currently learning too much!
 - 💞️ I’m looking to collaborate on building a foundation for a modernized judicial system ran by humans using ai-as-a-tool. Both concepts are imperative for elevating The United States of America whom desparetly needs to change. 
 - 👓 When you change the way you see things, the things you see will change.
